@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey Everyone🤝  <br>I'm Mahmoud Rabea, 3rd year Biomedical Engineering student at Cairo University interested in Web development, Bioinformatics and Software Engineering.<br> 
+Hey Everyone🤝  <br>I'm Mahmoud Rabea, Senior systems and Biomedical Engineering student at Cairo University interested in Ai,Web development, and Software Engineering.<br> 
 
 
 ## 🌐 Socials:
