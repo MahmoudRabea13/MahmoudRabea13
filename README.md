@@ -17,7 +17,7 @@ My focus lies in **computer vision, deep learning, image processing, and biometr
 After completing my **military service**, I'm now actively **seeking new opportunities** to contribute, learn, and grow 
 
 ---
-## [➡️ Check out my Resume](https://drive.google.com/file/d/1uzlFmrvcQRihA_r0n1v0Vej4nmqdPup-/view?usp=sharing)  
+## [➡️ Check out my Resume](https://drive.google.com/file/d/1ALHVulYlS8D2M7vqG2tzz1X35EiTQpjd/view?usp=sharing)  
 ---
 
 ## 📫 How to Reach Me  
